@@ -1,4 +1,4 @@
 ## Hi there 👋
 
 `AGH University of Krakow mechatronic engineering undergraduate`
-**.**_._ ✨`.` 
+**.**_._`.` 
